@@ -1,1 +1,0 @@
-# SergenYUKSEL.github.io
